@@ -1,0 +1,1 @@
+İfelse ödevidir
